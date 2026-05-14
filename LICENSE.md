@@ -1,4 +1,4 @@
-#  
+#  Experience bedwars like never before with bedwars Script ultimate, the #1 Script. Includes teleport and anti-ban for unbeatable performance.
 
 
 
